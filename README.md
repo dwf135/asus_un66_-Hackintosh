@@ -8,8 +8,11 @@
 
 https://dwf135.lanzouj.com/i059z24feqob
 
-<img src="[url](https://github.com/dwf135/asus_un66_-Hackintosh/blob/main/TV_CAM_%E8%AE%BE%E5%A4%87_20240714_152040.636.jpg?raw=true)" />
+http://www.dwf135.cn/3153.html
+
+<img src="https://github.com/dwf135/asus_un66_-Hackintosh/blob/main/TV_CAM_%E8%AE%BE%E5%A4%87_20240714_152040.636.jpg?raw=true" />
 
 <img src="https://github.com/dwf135/asus_un66_-Hackintosh/blob/main/TV_CAM_%E8%AE%BE%E5%A4%87_20240714_152112.428.jpg?raw=true" />
 
-<img src="[url](https://github.com/dwf135/asus_un66_-Hackintosh/blob/main/TV_CAM_%E8%AE%BE%E5%A4%87_20240714_152234.556.jpg?raw=true)" />
+<img src="https://github.com/dwf135/asus_un66_-Hackintosh/blob/main/TV_CAM_%E8%AE%BE%E5%A4%87_20240714_152234.556.jpg?raw=true" />
+
